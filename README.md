@@ -1,2 +1,2 @@
 # resume
-My resume ::UwU::
+My Resume ::UwU::
